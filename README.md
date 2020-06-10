@@ -1,4 +1,4 @@
-最新地址：<a href="www.chengrdh.info">chengrdh.info</a> 备用地址：<a href="www.chengrdh.org">chengrdh.org</a>
+最新地址：<a href="http://www.chengrdh.info">chengrdh.info</a> 备用地址：<a href="http://www.chengrdh.org">chengrdh.org</a>
 
 当你发现成人色导航地址不能正常访问时，打开此发布页即可获取本站最新可用地址
 
