@@ -1,8 +1,10 @@
-最新地址1：<a href="https://www.52crs9.xyz">52crs9.xyz</a> 
+最新地址1：<a href="https://www.52crs10.xyz">52crs10.xyz</a> 
 
-最新地址2：<a href="https://www.52crs.xyz">52crs.xyz</a>
+最新地址2：<a href="https://www.52crs9.xyz">52crs9.xyz</a> 
 
-最新地址3：<a href="https://www.chengrdh.me">chengrdh.me</a>
+最新地址3：<a href="https://www.52crs.xyz">52crs.xyz</a>
+
+最新地址4：<a href="https://www.chengrdh.me">chengrdh.me</a>
 
 
 当你发现成人色导航地址不能正常访问时，打开此发布页即可获取本站最新可用地址
